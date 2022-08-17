@@ -1,1 +1,0 @@
-# strongpapazola.github.io
